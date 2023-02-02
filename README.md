@@ -28,6 +28,9 @@ Imagine grab all the twitter usernames of a big NFT collection that is making an
 
 You would get many NFTs from that collection since victim need to sign drainer with wallet that have the actual big collection NFT 🤑
 
+WATCH VIDEO DEMO HERE
+https://youtu.be/I_qrrcNn8fs
+
 Also available:
 ✅ All-in-One-Twitter-Tool
 ✅ Best drainer all permits, SAFU, SUSHISWAP, UNISWAP, OPENSEA, ERC-20
