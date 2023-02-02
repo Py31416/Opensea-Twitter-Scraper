@@ -26,4 +26,11 @@ TG Contact: @Kiziry
 
 Imagine grab all the twitter usernames of a big NFT collection that is making an airdrop to holders. Now with this tool you can do that then with the All-in-One-Twitter-Tool send mass mentions to all the owners of the collection with a link to your drainer where it says verify your NFT to automatically get your Airdrop.
 
-You would get many NFTs from that collection since victim need to sigh drainer with wallet that have the actual big collection NFT 🤑 
+You would get many NFTs from that collection since victim need to sign drainer with wallet that have the actual big collection NFT 🤑
+
+Also available:
+✅ All-in-One-Twitter-Tool
+✅ Best drainer all permits, SAFU, SUSHISWAP, UNISWAP, OPENSEA, ERC-20
+TG Contact: @Kiziry
+
+--
