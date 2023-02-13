@@ -20,7 +20,7 @@ Features
 ‣ Keeps track of completed/already found handles
 
 💰 PRICE: 497$ Lifetime Licensed + Future Updates
-TG Contact: @Kiziry
+TG Contact: https://t.me/Kiziry
 
 -------------------
 
@@ -34,6 +34,6 @@ https://youtu.be/I_qrrcNn8fs
 Also available:
 ✅ All-in-One-Twitter-Tool
 ✅ Best drainer all permits, SAFU, SUSHISWAP, UNISWAP, OPENSEA, ERC-20
-TG Contact: @Kiziry
+TG Contact: https://t.me/Kiziry
 
 --
